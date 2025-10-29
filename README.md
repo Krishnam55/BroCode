@@ -8,7 +8,7 @@
 
 Click the image below to watch the full demo:
 
-[![Watch the video](https://img.youtube.com/vi/h4ChvOKZZPg/0.jpg)](https://youtu.be/h4ChvOKZZPg)
+[![Watch the video](https://img.youtube.com/vi/h4ChvOKZZPg/0.jpg)](https://youtu.be/U4POa1SHwcQ)
 
 ---
 
